@@ -7,3 +7,4 @@ i struggle with typing & am not that interested in talking to people, but if you
 ^ unless i have like, 'int' in my pony name. terraria fans please say hi :pray: (i don't care for calamity sorry guys)
 
 i get pelted with rocks every day at 11 am by the way. they have to keep me in check
+people who demonize cluster b disorders get shot immediately! by the way!
